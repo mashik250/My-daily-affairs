@@ -1,0 +1,10 @@
+$1.4 billion
+$559.9 million
+$460.1 million
+$16.0 billion
+$551.0 million
+$851.2 million
+$550.5 million
+$1.5 billion
+$3.1 billion
+$1.0 billion
